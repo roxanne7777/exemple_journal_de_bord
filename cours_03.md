@@ -22,7 +22,7 @@ Exquisite Paradox sur Instragram (Ava May)
 La typo, les couleurs et le grain de ses oeuvres rappelle les années 60 et 70, ce qui m'attire beaucoup au niveau esthétique. Son style est consistant et les messages qu'elle véhicule sont toujours inspirants. 
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+J'espère être en poste dans un emploi motivant et non routinier où la créativité et la polyvalence seront mises de l'avant.
 
 ### Projets
-J'aurais aimé participer à l'élaboration du jeu Before your eyes. L'esthétique 
+J'aurais aimé participer à l'élaboration du jeu Before your eyes. L'esthétique est accrocheuse et l'élément d'interactivité, qui consiste à réagir aux clignements de yeux du joueur, est original et innovant.
